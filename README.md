@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Angela
+- 👀 I’m interested in psychology and bioengineering.
+- 🌱 I’m currently learning debate
